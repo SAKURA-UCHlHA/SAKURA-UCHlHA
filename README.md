@@ -2,3 +2,8 @@
 
 
 <p align="center"> dni sakura antis yall weird asf
+
+<p align="center"> <img width="100" src="https://github.com/user-attachments/assets/f05535a8-158d-4f60-ac35-9e2c1327c05e"/>
+
+
+
