@@ -9,4 +9,4 @@
 
 
 [RENTRY](https://rentry.co/obitouchiha)ㅤ⟡
-ㅤ[ATA](https://obito.atabook.org/)ㅤ⟡ㅤ[GUNS.LOL](https://guns.lol/derealization)ㅤ⟡ㅤ[STRAW](https://obiito.straw.page/)ㅤ
+ㅤ[ATA](https://obito.atabook.org/)ㅤ⟡ㅤ[GUNS.LOL](https://guns.lol/derealization)ㅤ
